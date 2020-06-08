@@ -1,1 +1,0 @@
-# financny-program.github.io
